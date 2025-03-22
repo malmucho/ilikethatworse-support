@@ -8,7 +8,7 @@ Thanks for using *ilikethatworse*! We’re here to help.
 
 If you're experiencing issues or have questions, feel free to email us:
 
-**Email:** [your.email@example.com]
+**Email:** [ilikethatworse@gmail.com]
 
 ---
 
